@@ -23,6 +23,4 @@ Romeo and Juliet
 Shakespeare homepage | Romeo and Juliet | Entire play
 ACT I
 this is raneem again ! 
-
-jaleeleh code again
-jaleeleh alqasrawi
+last line
